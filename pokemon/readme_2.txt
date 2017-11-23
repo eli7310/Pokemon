@@ -1,37 +1,37 @@
-ξμΰ GIF-ιν ξξω θεαιν:
+Γ®Γ¬Γ  GIF-Γ©Γ­ Γ®Γ®ΓΉ Γ¨Γ¥Γ΅Γ©Γ­:
 https://www.google.co.il/search?q=hydropump+gif&espv=2&biw=1920&bih=950&source=lnms&tbm=isch&sa=X&ved=0ahUKEwilkdH63YjRAhWYOsAKHabVBWEQ_AUIBigB#q=hydropump+gameboy+gif+animation&tbm=isch&tbs=rimg:CX8-snObcMnGIjjL01iOxv_1JDzJAcdRalUXjaD6bhgandRiGHYobjBI9MwX93iVjRM02psWDVTKrSeAara_1wS_1mwvSoSCcvTWI7G_18kPEb42gmyv_1MseKhIJMkBx1FqVReMRBTs5XP3GQT8qEgloPpuGBqd1GBEFOzlc_1cZBPyoSCYYdihuMEj0zEewGzgoPgsQnKhIJBf3eJWNEzTYRoSiGneqKYJUqEgmmxYNVMqtJ4BEvvJXrhXJAhCoSCRqtr_1BL-bC9EWWcx6R14zbY&imgdii=2Tht1h0aFzO_xM%3A%3B2Tht1h0aFzO_xM%3A%3BIIVypL0pDmPgaM%3A&imgrc=2Tht1h0aFzO_xM%3A
 
-λμ δΰπιξφιεϊ ωμ pokemon crystal αργψ ςεχα
+Γ«Γ¬ Γ¤Γ Γ°Γ©Γ®Γ¶Γ©Γ¥ΓΊ ΓΉΓ¬ pokemon crystal Γ΅Γ±Γ£ΓΈ Γ²Γ¥Γ·Γ΅
 http://www.greenchu.de/sprites/crystal/001.gif
 
-λμ δΰπιξφιεϊ ωμ pokemon XYαργψ ςεχα
+Γ«Γ¬ Γ¤Γ Γ°Γ©Γ®Γ¶Γ©Γ¥ΓΊ ΓΉΓ¬ pokemon XYΓ΅Γ±Γ£ΓΈ Γ²Γ¥Γ·Γ΅
 http://pldh.net/media/pokemon/gen6/xy-animated/001.gif
 
-ξμΰ ΰπιξφιεϊ ξξω ιτεϊ (ΰϊψ):
+Γ®Γ¬Γ  Γ Γ°Γ©Γ®Γ¶Γ©Γ¥ΓΊ Γ®Γ®ΓΉ Γ©Γ΄Γ¥ΓΊ (Γ ΓΊΓΈ):
 http://s949.photobucket.com/user/FlameingElectricity/media/Animated%20Pokemon%20Sprites/256_zpsc0dbf48a.gif.html
 
-ΰπιξφιδ ρπεψμχρ:
+Γ Γ°Γ©Γ®Γ¶Γ©Γ¤ Γ±Γ°Γ¥ΓΈΓ¬Γ·Γ±:
 http://i792.photobucket.com/albums/yy202/SS6_Kor/Anime/Pokemon%20and%20Digimon/Pokemon%20Animated%20Sprites/143.gif
 
-ΰπιξφιδ μτι ων:
+Γ Γ°Γ©Γ®Γ¶Γ©Γ¤ Γ¬Γ΄Γ© ΓΉΓ­:
 http://www.pkparaiso.com/imagenes/xy/sprites/animados/charizard.gif
 http://www.pkparaiso.com/imagenes/xy/sprites/animados/charizard-2.gif
 http://www.pkparaiso.com/imagenes/xy/sprites/animados/charizard-3.gif
 
-θιτϊ ξιν πετμϊ αCSS:
+Γ¨Γ©Γ΄ΓΊ Γ®Γ©Γ­ Γ°Γ¥Γ΄Γ¬ΓΊ Γ΅CSS:
 https://codepen.io/rachsmith/pen/xGrjvB
 
-θαςϊ ςμ ηεωιϊ:
+Γ¨Γ΅Γ²ΓΊ Γ²Γ¬ Γ§Γ¥ΓΉΓ©ΓΊ:
 https://codepen.io/jascha/pen/lekgC
 
-δΰϊψ δλι θεα: ΰιπγχρ ξμΰ, ξμΰ ΰπιξφιεϊ ςμ λμ τεχιξεο(μλϊεα αξχεν μεβιδ ΰϊ ων δτεχιξεο εδλμ ιετις): 
+Γ¤Γ ΓΊΓΈ Γ¤Γ«Γ© Γ¨Γ¥Γ΅: Γ Γ©Γ°Γ£Γ·Γ± Γ®Γ¬Γ , Γ®Γ¬Γ  Γ Γ°Γ©Γ®Γ¶Γ©Γ¥ΓΊ Γ²Γ¬ Γ«Γ¬ Γ΄Γ¥Γ·Γ©Γ®Γ¥Γ―(Γ¬Γ«ΓΊΓ¥Γ΅ Γ΅Γ®Γ·Γ¥Γ­ Γ¬Γ¥ΓΆΓ©Γ¤ Γ ΓΊ ΓΉΓ­ Γ¤Γ΄Γ¥Γ·Γ©Γ®Γ¥Γ― Γ¥Γ¤Γ«Γ¬ Γ©Γ¥Γ΄Γ©Γ²): 
 http://pokemon.wikia.com/wiki/Lugia
 
-ΰϊψ ξξω ηωεα!!!
-ΰϊψ ξςεμδ ςν ξμΰ ΰπιξφιεϊ ωμ λμ δτεχιξεπιν (μμηευ ςμ read more, εβν ςμ Palette Gallery εβν ςμ click to show animation):
+Γ ΓΊΓΈ Γ®Γ®ΓΉ Γ§ΓΉΓ¥Γ΅!!!
+Γ ΓΊΓΈ Γ®Γ²Γ¥Γ¬Γ¤ Γ²Γ­ Γ®Γ¬Γ  Γ Γ°Γ©Γ®Γ¶Γ©Γ¥ΓΊ ΓΉΓ¬ Γ«Γ¬ Γ¤Γ΄Γ¥Γ·Γ©Γ®Γ¥Γ°Γ©Γ­ (Γ¬Γ¬Γ§Γ¥Γµ Γ²Γ¬ read more, Γ¥ΓΆΓ­ Γ²Γ¬ Palette Gallery Γ¥ΓΆΓ­ Γ²Γ¬ click to show animation):
 http://mugen.wikia.com/wiki/Pok%C3%A9mon
 
-ΰϊψιν ςν ξμΰ GIF-ιν ωμ ΰχρ ξο:
+Γ ΓΊΓΈΓ©Γ­ Γ²Γ­ Γ®Γ¬Γ  GIF-Γ©Γ­ ΓΉΓ¬ Γ Γ·Γ± Γ®Γ―:
 http://cantinhodalumad.blogspot.co.il/2009/07/x-men.html
 http://puppsfreestuff.com/files/XMicemanstance24f.gif
 http://s282.photobucket.com/user/kingkongkymm/media/Hero/rty-2.gif.html
